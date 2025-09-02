@@ -36,6 +36,7 @@ Sandip University (2024–2028)
 ## 📬 Let’s Connect!  
 📧 **Email**: (badrigariphanindharreddy@gmail.com)  
 🔗 **LinkedIn**: (https://www.linkedin.com/in/badrigari-phanindhar-reddy-a78113373/)
+
 🐱 **GitHub**: (https://github.com/badrigariphanindharreddy-code/badrigariphanindharreddy-code/) 
 
 ---
